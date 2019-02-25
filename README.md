@@ -1,2 +1,3 @@
 # Break-All-The-Things
-I want to break things and then repair them. I expect to succeed at the first part....
+
+I plan to break things and then repair them. I am being taught by an expert instructor and should succeed (**IF** I pay attention).
